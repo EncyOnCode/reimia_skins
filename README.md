@@ -7,7 +7,7 @@
 ## Основные скины
 
 ### 1. НЕГОЛЫЕ МАЛЫШКИ, белый квадрат
-![preview](ССЫЛКА_НА_КАРТИНКУ)
+![preview](https://enclosed.s-ul.eu/DqXnwP4R)
 
 - **Скачать:** https://enclosed.s-ul.eu/IYNU85Gg
 - **Примечание:** Light NSFW.
