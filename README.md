@@ -9,7 +9,7 @@
 ### 1. <Название скина>
 ![preview](ССЫЛКА_НА_КАРТИНКУ)
 
-- **Скачать:** [Download]([https://enclosed.s-ul.eu/IYNU85Gg])
+- **Скачать:** https://enclosed.s-ul.eu/IYNU85Gg
 - **Примечание:** Light NSFW.
 
 ---
