@@ -15,20 +15,20 @@
 ---
 
 ### 2. EZChamp Aristia Edit, белый квадрат
-![preview](ССЫЛКА_НА_КАРТИНКУ)
+![preview](https://enclosed.s-ul.eu/YWh6Rsq6)
 
 - **Скачать:** https://enclosed.s-ul.eu/ZEOcBHeL
 
 ---
 
 ### 3. Aristia Edit, белый квадрат
-![preview](ССЫЛКА_НА_КАРТИНКУ)
+![preview](https://enclosed.s-ul.eu/QrkwRMfM)
 
 - **Скачать:** https://enclosed.s-ul.eu/2snUnkvU
 
 ---
 
 ### 4. dtmitsu fixed instafade
-![preview](ССЫЛКА_НА_КАРТИНКУ)
+![preview](https://enclosed.s-ul.eu/ozBB51fR)
 
 - **Скачать:** https://enclosed.s-ul.eu/EMOuVPHr
